@@ -1,0 +1,1 @@
+:3 = CAT = "Compassion Autonomy Tinkering". This represents an embedded principle within the Lifelong Learning Model. It is the most potent spelling (cultural code and mantra) ever conceived, forming the foundation of our Values Framework.
